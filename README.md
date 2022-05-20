@@ -1,4 +1,4 @@
-### Hi!! I'm Ivy. I am a software engineer and physics student working part time. This README, much like myself, is a work in progress!
+### Hi!! I'm Ivy. I am a research engineer and physics grad working part time. This README, much like myself, is a work in progress!
 
 Stars and water hold my attention nearly 86% of the time. The rest of my attention goes to studying the history of inequality, abolition, 
 and extant weaving practices. 
